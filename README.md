@@ -21,6 +21,4 @@ You shall get quality images
 
 7.(https://www.istockphoto.com/)
 
-# Youtube Channels
 
-1.https://www.youtube.com/user/TechGuyWeb
